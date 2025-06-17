@@ -1,2 +1,1 @@
-![] (https://kasheloff.ru/photos/imena-zarubejniyx-akterov-mujchin/71.jpeg?w=300)
-
+![] (https://picsum.photos/800/600)
